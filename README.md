@@ -1,2 +1,2 @@
 # kosmo_practice
-dfd
+dfdㅇㄹㅇㄹㅇㄹㅇㄹㅇㄹㅇㄹㅇㄹ
